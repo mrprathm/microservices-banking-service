@@ -4,7 +4,7 @@
 > **Author:** Pratham Rathod  
 > **Email:** prathamrathod200@gmail.com | **Phone:** +91-9890394356  
 > **Location:** Pune, Maharashtra  
-> **LinkedIn:** [Pratham Rathod](https://linkedin.com/in/pratham-rathod) | **GitHub:** [prathamrathod](https://github.com/prathamrathod)
+> **LinkedIn:** [Pratham Rathod](linkedin.com/in/pratham-rathod-210ab022a) | **GitHub:** [prathamrathod](https://github.com/mrprathm)
 
 ---
 
